@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Juan Martinez @juanes133
+- 👀 I’m interested in Mobile Software Development and Mobile Game development
+- 🇨🇴 Based on Medellin Colombia
